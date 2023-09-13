@@ -12,5 +12,4 @@ meu nome é Thalita Oliveira
   
   @thalitaxrz._
 
-![](https://tenor.com/pt-BR/view/hello-hi-hey-welcome-greetings-gif-27392115)
- 
+![](https:/tenor.com/pt-BR/view/sinal-da-cruz-chaves-sign-of-the-cross-gif-13564662/)
